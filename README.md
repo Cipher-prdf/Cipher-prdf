@@ -1,16 +1,18 @@
-## Hi there 👋
+Me and my gambling addiction  
+. 
 
-<!--
-**Cipher-prdf/Cipher-prdf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+you can send me a friend req if we are on the same server 
+.
 
-Here are some ideas to get you started:
+ckr.kd    sv : Hollyberry / name : yây      id : XRVMR3721 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+gi : Asia sv uid : 852258439 
+
+hk.sr : Asia sv  uid : 802369710  
+
+.😔    
+
+hkip.3rd : SEA sv  uid : 14642671
+
+![1000002902](https://github.com/user-attachments/assets/a13adf9f-0cbc-49ed-8be2-dbef407a81a0)
+
