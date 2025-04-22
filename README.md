@@ -6,9 +6,9 @@ you can send me a friend req if we are on the same server
 
 ckr.kd    sv : Hollyberry / name : yây      id : XRVMR3721 
 
-gi : Asia sv uid : 852258439 
+gi : Asia sv / uid : 852258439 
 
-hk.sr : Asia sv  uid : 802369710  
+hk.sr : Asia sv / uid : 802369710  
 
 .😔    
 
