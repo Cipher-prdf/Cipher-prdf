@@ -1,4 +1,3 @@
-Me and my gambling addiction  
 . 
 
 you can send me a friend req if we are on the same server 
