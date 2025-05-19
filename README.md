@@ -3,8 +3,8 @@
 you can send me a friend req if we are on the same server 
 .
 
-ckr.kd    sv : Hollyberry / name : yây  
-id : XRVMR3721 
+ckr.kd    sv : Hollyberry / name : gayvai
+ 
 
 gi : Asia sv / uid : 852258439 
 
