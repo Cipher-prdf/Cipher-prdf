@@ -14,6 +14,4 @@ hk.sr : Asia sv / uid : 802369710
 
 hkip.3rd : SEA sv  uid : 14642671
 
-![1000007301](https://github.com/user-attachments/assets/44f3cbd4-a0fe-40fd-9f1c-87eabb2f7eaa)
-
-
+![1000007312](https://github.com/user-attachments/assets/581b6e65-03a3-4b72-948c-855a64bccdb6)
